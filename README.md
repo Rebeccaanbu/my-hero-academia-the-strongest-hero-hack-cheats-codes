@@ -1,2 +1,5 @@
-# my-hero-academia-the-strongest-hero-hack-cheats-codes
-My Hero Academia The Strongest Hero Hack 900k hero coins Cheats gift codes 2021 with mod
+# My Hero Academia The Strongest Hero Hack 900k hero coins Cheats gift codes 2021 with mod
+
+My Hero Academia The Strongest Hero Hack 900k hero coins Cheats gift codes 2021 with mod - Once you input My Hero Academia The Strongest Hero Codes in the box code menu and put your heroes and villains on the battlefield, you are now ready to face the enemy and redeem free hero coins easily. All actions are automatic, but you can decide when your characters will use their super actions. Every time they attack or get hurt, they get their anger scale. Once full, they will be ready to release their special power, and their portrait will be highlighted in the lower right corner of the screen. Tap their image and watch your character perform their ultimate destructive power! There is also an automatic mode that you can turn on and find at the bottom left of the screen. When on, MHA The Strongest Hero hack mod function will automatically use their final abilities when the anger bar is full without having to click on their photos. The last one on the side wins, so make sure you bring your strongest hero and villain team and you'll beat all your opponents!
+
+<a href="https://yintamod.xyz/my-hero-academia/">check here</a>
